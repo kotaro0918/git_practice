@@ -1,1 +1,1 @@
-# my-thogghts
+# my-thoghts
